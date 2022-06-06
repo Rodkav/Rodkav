@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Rodkav
+- 📫 Esta conta tem como finalidade, receber os meus trabalhos realizados, bem como respostas de provas durante o curso de sistemas de informação na faculdade unidesc
+- 
